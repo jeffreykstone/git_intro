@@ -1,1 +1,2 @@
-Jeffrey "Gent" Stone
+Jeffrey "Gent" Ston
+stonjeff@oregonstate.edue
