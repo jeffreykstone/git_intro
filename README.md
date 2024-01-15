@@ -1,2 +1,3 @@
 Jeffrey "Gent" Ston
-stonjeff@oregonstate.edue
+stonjeff@oregonstate.edu
+blue
